@@ -21,5 +21,4 @@ or for dni too (if i have dni or afk such as scrolling) .
 and you'll get hidden if u copy me or get covered (by 15 or 24mins or hours if covered!) 
 . 
 
-𝗕𝘂𝘁 𝗛𝗲𝘆𝘆 𝗜 𝗵𝗮𝘃𝗲 𝗮𝗻 𝗮𝘁𝗮 𝗯𝗼𝗼𝗸👀👀  :
-shellydafossil.atabook.org 
+𝗕𝘂𝘁 𝗛𝗲𝘆𝘆 𝗜 𝗵𝗮𝘃𝗲 𝗮𝗻 𝗮𝘁𝗮 𝗯𝗼𝗼𝗸👀👀  : shellydafossil.atabook.org
