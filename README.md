@@ -16,6 +16,10 @@
  Fav fandoms : dandys world (?) Dolly's factory,animal hospital anomaly, poppy play time or more.. 💭
 🪽
 💤
+
+
+
+
 𝗽𝗹𝗲𝗮𝘀𝗲 𝗶𝗻𝘁 𝘄𝗶𝘁𝗵 𝗺𝗲𝗲 𝗣𝗟𝗘𝗔𝗦𝗘𝗘𝗘𝗘 𝗪𝗛𝗘𝗡 𝗜'𝗠 𝗡𝗢𝗧 𝗔𝗙𝗞𝗞𝗞 + 𝗖𝗨𝗗𝗗𝗟𝗘 𝗘𝗫𝗖𝗘𝗣𝗧 𝗜𝗙 𝗜 𝗣𝗨𝗧 𝗗𝗡𝗖𝗨𝗙! 𝗔𝗛𝗔𝗛𝗘𝗥𝗙𝗝𝗙𝗝𝗖𝗜𝗝𝗚𝗝𝗚𝗧𝗙𝗝𝗧𝗥𝗬𝗚 *𝗴𝗼𝗲𝘀 𝗰𝗿𝗮𝘇𝘆𝘆𝘆*
 . 
 . 
