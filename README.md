@@ -2,15 +2,24 @@
 𝙥𝙧𝙤𝙣𝙤𝙪𝙣𝙘𝙚𝙙 𝙖𝙨 𝙨𝙝𝙚 / 𝙝𝙚𝙧 / 𝙩𝙝𝙚𝙮 🪽
 
 
+
+
+
 <img width="736" height="414" alt="IMG_20260704_022830_667" src="https://github.com/user-attachments/assets/7f337061-3326-4c6c-8842-7334b8cdb779" />
 
  𝗔𝗕𝗢𝗨𝗧 ME❕🐾 ;: 
+
+
+ 
  
 
  Fav fandoms : dandys world (?) Dolly's factory,animal hospital anomaly, poppy play time or more.. 💭
 🪽
 💤
-
+𝗽𝗹𝗲𝗮𝘀𝗲 𝗶𝗻𝘁 𝘄𝗶𝘁𝗵 𝗺𝗲𝗲 𝗣𝗟𝗘𝗔𝗦𝗘𝗘𝗘𝗘 𝗪𝗛𝗘𝗡 𝗜'𝗠 𝗡𝗢𝗧 𝗔𝗙𝗞𝗞𝗞 + 𝗖𝗨𝗗𝗗𝗟𝗘 𝗘𝗫𝗖𝗘𝗣𝗧 𝗜𝗙 𝗜 𝗣𝗨𝗧 𝗗𝗡𝗖𝗨𝗙! 𝗔𝗛𝗔𝗛𝗘𝗥𝗙𝗝𝗙𝗝𝗖𝗜𝗝𝗚𝗝𝗚𝗧𝗙𝗝𝗧𝗥𝗬𝗚 *𝗴𝗼𝗲𝘀 𝗰𝗿𝗮𝘇𝘆𝘆𝘆*
+. 
+. 
+. 
 <img width="480" height="480" alt="IMG_20260704_022847_093" src="https://github.com/user-attachments/assets/558e98b5-f3de-4895-a5c8-7c6c2e77ff4e" />
 
 𝗯𝘁𝘄 𝘁𝗵𝗶𝘀 𝗶𝘀 𝗺𝘆 𝗙𝗜𝗥𝗦𝗧 𝗿𝗲𝗮𝗱 𝗺𝗲 𝘀𝗼 𝗜 𝘀𝘂𝗰𝗸.. 😭😭
