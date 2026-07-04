@@ -38,3 +38,6 @@ and you'll get hidden if u copy me or get covered (by 15 or 24mins or hours if c
 . 
 
 𝗕𝘂𝘁 𝗛𝗲𝘆𝘆 𝗜 𝗵𝗮𝘃𝗲 𝗮𝗻 𝗮𝘁𝗮 𝗯𝗼𝗼𝗸👀👀  :  shellydafossil.atabook.org  𝗶𝘁𝘀 𝗶𝗻 𝗺𝘆 𝗿𝗲𝗽𝗼𝘀𝗶𝘁𝗼𝗿𝘆
+
+
+𝘩𝘪 𝘴𝘪𝘨𝘯 𝘮𝘺 ata👀
