@@ -36,6 +36,7 @@ please if I have an dncuf (do not cuddle unless friends) dont cuddle me..
 or for dni too (if i have dni or afk such as scrolling) . 
 and you'll get hidden if u copy me or get covered (by 15 or 24mins or hours if covered!) 
 . 
+
 hi here's my dni list : 
 
 #1 pro/dark shippers-
