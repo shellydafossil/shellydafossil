@@ -17,7 +17,7 @@
  
  
 
- Fav fandoms : dandys world (?) Dolly's factory,animal hospital anomaly, poppy play time or more.. 💭
+ Fav fandoms : dandys world (?) Dolly's factory,animal hospital anomaly, poppy play time the amazing digital circus or more.. 💭
 🪽
 💤
 
@@ -33,6 +33,11 @@
 𝘤𝘢𝘬𝘦𝘧𝘰𝘴𝘴𝘪𝘭
 
 𝘱𝘢𝘳𝘵𝘺𝘤𝘢𝘵
+
+headagent
+
+secret agent x intern ( dniuf) 
+
 
 + 𝙨𝙝𝙞𝙥𝙨 𝙙𝙣𝙞𝙪𝙛 
 
