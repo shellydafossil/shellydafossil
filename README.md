@@ -14,7 +14,7 @@
  𝗔𝗕𝗢𝗨𝗧 ME❕🐾 ;: 
 
 
- Fav 🎨. : $\color{#FF4994}{\textsf{𝘩𝘰𝘵 𝗉𝗂𝗇𝗄}}$ <br> ا  $\color{#A1876E}{\textsf{𝘼𝙣𝙙 𝙡𝙞𝙜𝙝𝘵 𝘣𝘳𝘰𝘸𝘯}}$ <br> ا
+ Fav 🎨. : $\color{#FF4994}{\textsf{𝘩𝘰𝘵 𝗉𝗂𝗇𝗄}}$ <br>   $\color{#A1876E}{\textsf{𝘼𝙣𝙙 𝙡𝙞𝙜𝙝𝘵 𝘣𝘳𝘰𝘸𝘯}}$ <br> 
  
 
  Fav fandoms : dandys world (?) Dolly's factory,animal hospital anomaly, poppy play time the amazing digital circus or more.. 💭
