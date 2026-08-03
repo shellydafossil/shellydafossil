@@ -2,7 +2,7 @@
 
 
 
-𝙥𝙧𝙤𝙣𝙤𝙪𝙣𝙘𝙚𝙙 𝙖𝙨 𝙨𝙝𝙚 / 𝙝𝙚𝙧 / 𝙩𝙝𝙚𝙮 🪽 
+𝙥𝙧𝙤𝙣𝙤𝙪𝙣𝙘𝙚𝙙 𝙖𝙨 $\color{#FFCFF7}{\textsf{𝙥𝙧𝙤𝙣𝙤𝙪𝙣𝙘𝙚𝙙 𝙖𝙨 𝙎𝙝𝙚 / 𝙃𝙚𝙧 / 𝙏𝙝𝙚𝙮 }}$ <br>  🪽 
 
 
 
@@ -14,10 +14,10 @@
  𝗔𝗕𝗢𝗨𝗧 ME❕🐾 ;: 
 
 
- Fav 🎨. : $\color{#FF4994}{\textsf{𝘩𝘰𝘵 𝗉𝗂𝗇𝗄}}$ <br>   $\color{#A1876E}{\textsf{𝘼𝙣𝙙 𝙡𝙞𝙜𝙝𝘵 𝘣𝘳𝘰𝘸𝘯}}$ <br> 
+ Fav 𝘊𝘰𝘭𝘰𝘳𝘴 🎨. : $\color{#FF4994}{\textsf{𝘩𝘰𝘵 𝗉𝗂𝗇𝗄}}$ <br>   $\color{#A1876E}{\textsf{𝘼𝙣𝙙 𝙡𝙞𝙜𝙝𝘵 𝘣𝘳𝘰𝘸𝘯}}$ <br> 
  
 
- Fav fandoms : dandys world (?) Dolly's factory,animal hospital anomaly, poppy play time the amazing digital circus or more.. 💭
+ Fav fandoms : dandys world (?) Dolly's factory,animal hospital anomaly,$\color{#F6888F}{\textsf{𝙥𝙤𝙥𝙥𝙮}}$ $\color{#B3DCFE}{\textsf{ᵖｌαᎽႵi𝕞𝗲}}}$ $\color{#FFFDA6}{\textsf{The Amazing Digital Circus}}$or more.. 💭
 🪽
 💤
 
@@ -61,7 +61,7 @@ hi here's my dni list :
 
 #2 ex friends-
 
-#3 rage baiters-
+#3 rage shippers-
 
 #4 qwel supporters-
 
