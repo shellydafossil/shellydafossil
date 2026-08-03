@@ -17,7 +17,7 @@
  Fav 𝘊𝘰𝘭𝘰𝘳𝘴 🎨. : $\color{#FF4994}{\textsf{𝘩𝘰𝘵 𝗉𝗂𝗇𝗄}}$ <br>   $\color{#A1876E}{\textsf{𝘼𝙣𝙙 𝙡𝙞𝙜𝙝𝘵 𝘣𝘳𝘰𝘸𝘯}}$ <br> 
  
 
- Fav fandoms : dandys world (?) Dolly's factory,animal hospital anomaly,$\color{#F6888F}{\textsf{𝙥𝙤𝙥𝙥𝙮}}$ $\color{#B3DCFE}{\textsf{ᵖｌαᎽႵi𝕞𝗲}}$ $\color{#FFFDA6}{\textsf{The Amazing Digital Circus}}$or more.. 💭
+ Fav fandoms : dandys world (?) Dolly's factory,animal hospital anomaly,$\color{#F6888F}{\textsf{𝙥𝙤𝙥𝙥𝙮}}$   $\color{#B3DCFE}{\textsf{ᵖｌαᎽႵi𝕞𝗲}}$   $\color{#FFFDA6}{\textsf{The Amazing Digital Circus}}$  or more.. 💭
 🪽
 💤
 
