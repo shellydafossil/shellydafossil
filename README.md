@@ -26,33 +26,15 @@
 
 
 
-𝘧𝘢𝘷 𝘴𝘩𝘪𝘱𝘴;: 
-
-𝘮𝘰𝘰n𝘣𝘦𝘳𝘳𝘺 🌙💤 X 🧁🍓. . . 💘
-
-𝘤𝘢𝘬e𝘧𝘰𝘴𝘴𝘪𝘭 🍰X🐚 . 💘
-
-𝘱𝘢𝘳𝘵𝘺𝘤𝘢𝘵, 📃🐱 X 🪅🎉 💝
-
-headagent 💉💊 X 🐈‍⬛🔫
-
-secret agent x intern 🔫🐈‍⬛ X 🐰 ( dniuf) 
-
-
-+ 𝙨𝙝𝙞𝙥𝙨 𝙙𝙣𝙞𝙪𝙛 
-
-𝗽𝗹𝗲𝗮𝘀𝗲 𝗶𝗻𝘁 𝘄𝗶𝘁𝗵 𝗺𝗲𝗲 𝗣𝗟𝗘𝗔𝗦𝗘𝗘𝗘𝗘 𝗪𝗛𝗘𝗡 𝗜'𝗠 𝗡𝗢𝗧 𝗔𝗙𝗞𝗞𝗞 + 𝗖𝗨𝗗𝗗𝗟𝗘 𝗘𝗫𝗖𝗘𝗣𝗧 𝗜𝗙 𝗜 𝗣𝗨𝗧 𝗗𝗡𝗖𝗨𝗙! 𝗔𝗛𝗔𝗛𝗘𝗥𝗙𝗝𝗙𝗝𝗖𝗜𝗝𝗚𝗝𝗚𝗧𝗙𝗝𝗧𝗥𝗬𝗚 *𝗴𝗼𝗲𝘀 𝗰𝗿𝗮𝘇𝘆𝘆𝘆*
 . 
 . 
 . 
 <img width="480" height="480" alt="IMG_20260704_022847_093" src="https://github.com/user-attachments/assets/558e98b5-f3de-4895-a5c8-7c6c2e77ff4e" />
 
-𝗯𝘁𝘄 𝘁𝗵𝗶𝘀 𝗶𝘀 𝗺𝘆 𝗙𝗜𝗥𝗦𝗧 𝗿𝗲𝗮𝗱 𝗺𝗲 𝘀𝗼 𝗜 𝘀𝘂𝗰𝗸.. 😭😭
+
 
 . 
-please if I have an dncuf (do not cuddle unless friends) dont cuddle me.. 
-or for dni too (if i have dni or afk such as scrolling) . 
-and you'll get hidden if u copy me or get covered (by 15 or 24mins or hours if covered!) 
+
 . 
 
 hi here's my dni list : 
@@ -61,7 +43,7 @@ hi here's my dni list :
 
 #2 ex friends-
 
-#3 rage shippers-
+#3 rage baiters-
 
 #4 qwel supporters-
 
