@@ -4,7 +4,7 @@
 $\color{#FFCFF7}{\textsf{𝙥𝙧𝙤𝙣𝙤𝙪𝙣𝙘𝙚𝙙 𝙖𝙨 𝙎𝙝𝙚 / 𝙃𝙚𝙧 / 𝙏𝙝𝙚𝙮 }}$ <br>  🪽 
 
 
-
+$\color{#FFD5A5}{\textsf{𝗦𝗵𝗲𝗹𝗹𝘆 𝐹𝑖𝑐𝑡𝑖𝑜𝑛 kin♡}}$
 
 
 <img width="736" height="414" alt="IMG_20260704_022830_667" src="https://github.com/user-attachments/assets/7f337061-3326-4c6c-8842-7334b8cdb779" />
@@ -22,6 +22,13 @@ $\color{#FFCFF7}{\textsf{𝙥𝙧𝙤𝙣𝙤𝙪𝙣𝙘𝙚𝙙 𝙖𝙨 𝙎�
 
 
 🎀🐚 # 𝙋𝑎𝑛𝑠𝑒𝑥𝑢𝑎𝑙 . . . ʚ♡ɞ 
+
+
+
+
+
+
+
 
 
 
