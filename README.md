@@ -26,29 +26,4 @@ $\color{#FFCFF7}{\textsf{𝙥𝙧𝙤𝙣𝙤𝙪𝙣𝙘𝙚𝙙 𝙖𝙨 𝙎�
 
 
 . 
-. 
-. 
-<img width="480" height="480" alt="IMG_20260704_022847_093" src="https://github.com/user-attachments/assets/558e98b5-f3de-4895-a5c8-7c6c2e77ff4e" />
-
-
-
-. 
-
-. 
-
-hi here's my dni list : 
-
-#1 pro/dark shippers-
-
-#2 ex friends-
-
-#3 rage baiters-
-
-#4 qwel supporters-
-
-#5 Ppl who copy me. 
-
-𝗕𝘂𝘁 𝗛𝗲𝘆𝘆 𝗜 𝗵𝗮𝘃𝗲 𝗮𝗻 𝗮𝘁𝗮 𝗯𝗼𝗼𝗸👀👀  :  shellydafossil.atabook.org  𝗶𝘁𝘀 𝗶𝗻 𝗺𝘆 𝗿𝗲𝗽𝗼𝘀𝗶𝘁𝗼𝗿𝘆
-
-
-𝘩𝘪 𝘴𝘪𝘨𝘯 𝘮𝘺 ata👀
+<img width="1280" height="1280" alt="IMG_20260813_220220_157" src="https://github.com/user-attachments/assets/20e0b42c-63a5-4da8-a9e7-c45018d37648" />
