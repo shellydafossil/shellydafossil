@@ -30,7 +30,7 @@ $\color{#FFD5A5}{\textsf{𝗦𝗵𝗲𝗹𝗹𝘆 𝐹𝑖𝑐𝑡𝑖𝑜𝑛 k
 
 
 
-
+![](https://visitor-badge.laobi.icu/badge?page_id=username.&left_text=Fossils%20collected&left_color=%23FFD5A5&right_color=%23A1876E)
 
 . 
 <img width="1280" height="1000" alt="IMG_20260813_220220_157" src="https://github.com/user-attachments/assets/20e0b42c-63a5-4da8-a9e7-c45018d37648" />
