@@ -7,7 +7,15 @@ $\color{#FFCFF7}{\textsf{𝙥𝙧𝙤𝙣𝙤𝙪𝙣𝙘𝙚𝙙 𝙖𝙨 𝙎�
 $\color{#FFD5A5}{\textsf{𝗦𝗵𝗲𝗹𝗹𝘆 𝐹𝑖𝑐𝑡𝑖𝑜𝑛 kin♡}}$
 
 
+
+
+
+
 <img width="736" height="414" alt="IMG_20260813_215420_075" src="https://github.com/user-attachments/assets/e18d18c3-1d16-468d-9a34-78bf9c1f33ca" />
+
+
+
+
 
  
 
