@@ -1,4 +1,4 @@
-⊹$\color{#FFD5A5}{\textsf{𝑉𝘢𝘯𝘯𝘦𝘴𝘢 / 𝓢𝓱𝓮𝓵𝓵𝔂୨ }}$      
+$\color{#FFD5A5}{\textsf{𝑉𝘢𝘯𝘯𝘦𝘴𝘢 / 𝓢𝓱𝓮𝓵𝓵𝔂୨ }}$      
 
 $\color{#FFD5A5}{\textsf{𝑽𝒂𝒏𝒏𝒚 𝗜𝗳 𝖢𝗅𝗈𝗌𝖾⚘}}$
 
