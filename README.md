@@ -29,5 +29,9 @@
 ![](https://visitor-badge.laobi.icu/badge?page_id=username.&left_text=Fossils%20collected&left_color=%23FFD5A5&right_color=%23A1876E)
 
 . 
+
+
+
+                                                                                                                                                                                                    
 <img width="500" height="500" alt="picmix com_12298873" src="https://github.com/user-attachments/assets/304e2959-004a-4b5d-b34d-cd6fb520dde7" />
 
