@@ -1,7 +1,3 @@
-<img width="662" height="399" alt="IMG_20260901_174127_352" src="https://github.com/user-attachments/assets/ee54252e-43d7-4e8b-9ecc-237fb8b926a0" /> 
-
-
-
 
 
 ʚ                                             $\color{#FFD5A5}{\textsf{𝑉𝘢𝘯𝘯𝘦𝘴𝘢 / 𝓢𝓱𝓮𝓵𝓵𝔂୨ }}$    
