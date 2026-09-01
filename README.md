@@ -33,7 +33,7 @@
 
 ![](https://visitor-badge.laobi.icu/badge?page_id=username.&left_text=Fossils%20collected&left_color=%23FFD5A5&right_color=%23A1876E)
 
-. 
+
 
 
 
