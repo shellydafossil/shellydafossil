@@ -1,12 +1,12 @@
-ʚ                         $\color{#FFD5A5}{\textsf{𝑉𝘢𝘯𝘯𝘦𝘴𝘢 / 𝓢𝓱𝓮𝓵𝓵𝔂୨ }}$    
+ʚ                                             $\color{#FFD5A5}{\textsf{𝑉𝘢𝘯𝘯𝘦𝘴𝘢 / 𝓢𝓱𝓮𝓵𝓵𝔂୨ }}$    
 
      
-ʚ                         $\color{#FFD5A5}{\textsf{𝑽𝒂𝒏𝒏𝒚 𝗜𝗳 𝖢𝗅𝗈𝗌𝖾⚘}}$
+ʚ                                             $\color{#FFD5A5}{\textsf{𝑽𝒂𝒏𝒏𝒚 𝗜𝗳 𝖢𝗅𝗈𝗌𝖾⚘}}$
 
-ʚ                         $\color{#FFCFF7}{\textsf{𝙥𝙧𝙤𝙣𝙤𝙪𝙣𝙘𝙚𝙙 𝙖𝙨 𝙎𝙝𝙚 / 𝙃𝙚𝙧 / 𝙏𝙝𝙚𝙮 }}$ <br>                  
+ʚ                                             $\color{#FFCFF7}{\textsf{𝙥𝙧𝙤𝙣𝙤𝙪𝙣𝙘𝙚𝙙 𝙖𝙨 𝙎𝙝𝙚 / 𝙃𝙚𝙧 / 𝙏𝙝𝙚𝙮 }}$ <br>                  
 
   
-ʚ                          $\color{#FFD5A5}{\textsf{𝗦𝗵𝗲𝗹𝗹𝘆 𝐹𝑖𝑐𝑡𝑖𝑜𝑛 kin♡}}$
+ʚ                                             $\color{#FFD5A5}{\textsf{𝗦𝗵𝗲𝗹𝗹𝘆 𝐹𝑖𝑐𝑡𝑖𝑜𝑛 kin♡}}$
 
 
 
