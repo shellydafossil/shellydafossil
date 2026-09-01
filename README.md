@@ -1,4 +1,5 @@
-<img width="300" height="300" alt="IMG_20260901_174148_388" src="https://github.com/user-attachments/assets/1d35f095-f564-42f7-85b1-b54dc45dbcce" />
+ <img width="600" height="600" alt="Untitled38" src="https://github.com/user-attachments/assets/ead3b3ed-3db7-4f88-b869-88df32bb2eb7" />
+
 
 
 ʚ                                             $\color{#FFD5A5}{\textsf{𝑉𝘢𝘯𝘯𝘦𝘴𝘢 / 𝓢𝓱𝓮𝓵𝓵𝔂୨ }}$    
